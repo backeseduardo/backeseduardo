@@ -1,4 +1,4 @@
-# Eduardo Backes, aka Backes.
+# Eduardo Backes, aka Backes
 
 ### Welcome.
 
